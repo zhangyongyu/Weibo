@@ -1,1 +1,1 @@
-![](/public/wb.jpg)
+![](/public/ex.jpg)
